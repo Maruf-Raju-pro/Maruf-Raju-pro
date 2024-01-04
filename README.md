@@ -31,7 +31,7 @@ Projects are coming soon .....
 If you share a similar passion for web development or have exciting projects in mind, I would love to connect with you! Feel free to reach out:
 
 - LinkedIn: [Maruf Raju](https://www.linkedin.com/in/muhammedmarufraju/)
-- Facebook: [Your Twitter Profile](https://www.facebook.com/MarufBytes/)
+- Facebook: [Muhammed Maruf](https://www.facebook.com/MarufBytes/)
 - Email: [Muhammedmarufraju@gmail.com](Muhammedmarufraju@gmail.com)
 
 Looking forward to the amazing journey of learning and creating together! 🌟
